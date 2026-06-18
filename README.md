@@ -1,2 +1,0 @@
-# equicord
-sqsqsqsqss
